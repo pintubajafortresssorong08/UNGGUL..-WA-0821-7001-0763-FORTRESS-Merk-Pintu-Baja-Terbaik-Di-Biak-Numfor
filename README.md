@@ -1,5 +1,6 @@
 # 🚪 WA 0821 7001 0763 Pintu Baja FORTRESS Sorong
-UNGGUL..!! WA 0821 7001 0763 (FORTRESS) Merk Pintu Baja Terbaik Di Biak Numfor
+<img src="logo.png" width="40" height="40" ># UNGGUL..!! WA 0821 7001 0763 (FORTRESS) Merk Pintu Baja Terbaik Di Biak Numfor #<img src="logo.png" width="40" height="40" >
+
 
 [![WhatsApp Button](https://img.shields.io/badge/Chat%20via%20WhatsApp-25D366?style=for-the-badge&logo=whatsapp&logoColor=white)](https://wa.me/6282170010763)[![Website Button](https://img.shields.io/badge/Kunjungi%20Website-007BFF?style=for-the-badge&logo=google-chrome&logoColor=white)](https://www.pintubajafortress.co.id/)
 
@@ -67,6 +68,7 @@ Klik tombol di bawah untuk langsung terhubung via WhatsApp:
 
 ## 🔍 Tags
 merkpintubajaterbaikdibiaknumfor, pintubajaantikaratdiintanjaya, pintubajaantimalingdiyahukimo, agenpintubajafortressditolikara, agenpintubajadibovendigoel
+
 
 
 
